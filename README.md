@@ -1,3 +1,5 @@
 # THC-Maniac
-
-dsssffsf
+vali sugunan 
+appi biju 
+badai vasu
+valiyan
